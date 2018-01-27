@@ -25,4 +25,4 @@
 + [Inst](https://www.instagram.com/polya_sel/)
 + Mail p.selezneva@yandex.ru
 
-![](https://vk.com/im?peers=301133&sel=124135777&z=photo124135777_456240037%2Fmail29413)
+![](https://pp.userapi.com/c840623/v840623225/4ac0a/kXFKd8nyO1w.jpg)
