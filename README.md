@@ -22,4 +22,4 @@
 ##### My contacts:
 + [vk](https://vk.com/p.selezneva)
 + [Inst](https://www.instagram.com/polya_sel/)
-+ [Mail](p.selezneva@yandex.ru)
++ Mail p.selezneva@yandex.ru
